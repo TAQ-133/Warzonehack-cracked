@@ -1,0 +1,1 @@
+This is a cracked warzone 2 cheat cracked by me if you want to use it open the warzone unlocker.exe fris and then it will inject into warzone then open the WarzoneGUI.exe to open the gui and you inject the cheat press ins on your keyboard to open and close the cheat.
